@@ -12,3 +12,6 @@ Instructions:
 - squeeze lime
 - add salt
 - and mix well
+
+![guacamole pictures] 
+(https://www.simplyrecipes.com/recipes/perfect_guacamole/)
